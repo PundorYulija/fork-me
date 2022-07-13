@@ -5,4 +5,6 @@
 НОВЕ життя!!!
 Нова ЯЯЯЯ!!
 
-foo bar
+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
+
+https://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@github.com/PundorYulija/fork-me.git
